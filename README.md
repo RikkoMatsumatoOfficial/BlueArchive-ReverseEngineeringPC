@@ -8,6 +8,8 @@ Enjoy to use this!!!
 
 P.S: You Need Unzip to Any Folder!!!
 
+[Join To My Discord Server](https://discord.gg/rikkomatsumato)
+
 ## Donations
 
 [LiberaPay](https://liberapay.com/RikkoMatsumatoOfficial/donate)
